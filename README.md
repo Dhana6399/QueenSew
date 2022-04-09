@@ -1,3 +1,3 @@
-# [නව ලින්ක් එක](https://github.com/ravindu01manoj/Sew-Queen)
+# [නව ලින්ක් එක](https://github.com/Dhana6399/QueenSew)
 
-# [NEW link](https://github.com/ravindu01manoj/Sew-Queen)
+# [NEW link](https://github.com/Dhana6399/QueenSew)
